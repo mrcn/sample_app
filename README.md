@@ -1,0 +1,1 @@
+people don't even talk to me, i just pick up on some cues they give and carry on. 
